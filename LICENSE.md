@@ -1,4 +1,4 @@
-# 
+# GlassWire for PC | GlassWire for Windows automatic Extension: split-tunneling & kill-switch offers the most advanced GlassWire for PC | GlassWire for Windows extension, with
 
 
 
